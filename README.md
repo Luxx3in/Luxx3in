@@ -1,4 +1,6 @@
-## Hi there 👋
+If with friends, I ask you please be mindful of their DNI/BYI otherwise
+
+INT/C+H is always welcomed. I'm often offtab/AFK (whisper!)
 
 <!--
 **Luxx3in/Luxx3in** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
