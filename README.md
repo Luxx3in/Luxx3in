@@ -1,4 +1,4 @@
-Now all-purpose account to bridge the gap between socials.
+Welcome! If you're coming from any of my socials, think of this space as a link tree with additional bonus information/content
 
 .
 .
