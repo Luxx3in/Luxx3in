@@ -4,7 +4,7 @@ Welcome! If you're coming from any of my socials, think of this space as a link 
 .
 .
 
-If you're from PT however, note the following below!
+If you're from PT: note the following below!
 
 If with friends, I ask you please be mindful of their DNI/BYI otherwise,
 
