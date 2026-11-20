@@ -1,4 +1,4 @@
-If with friends, I ask you please be mindful of their DNI/BYI otherwise
+If with friends, I ask you please be mindful of their DNI/BYI otherwise,
 
 INT/C+H is always welcomed. I'm often offtab/AFK (whisper!)
 
