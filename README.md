@@ -1,4 +1,4 @@
-Welcome! If you're coming from any of my socials, think of this space as a link tree with additional bonus information/content
+Welcome! If you're coming from any of my socials, think of this space as a link tree with additional information/content
 
 .
 .
