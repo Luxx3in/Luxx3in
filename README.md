@@ -1,3 +1,7 @@
+All-purpose account to bridge the gap between socials.
+__
+
+If you're from PT however, please note the following belowe!
 If with friends, I ask you please be mindful of their DNI/BYI otherwise,
 
 INT/C+H is always welcomed. I'm often offtab/AFK (whisper!)
